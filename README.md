@@ -10,6 +10,6 @@ NDA соблюдается, документы не содержат конфи�
 
 **Контакты:**<br>
 📧 **Email:** greenhia@mail.ru<br>
-💬 **Telegram:**: [@greenhia](https://t.me/@greenhia)
+💬 **Telegram:**: [@greenhia](https://t.me/greenhia)
 
 
