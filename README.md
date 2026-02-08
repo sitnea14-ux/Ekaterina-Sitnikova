@@ -6,7 +6,7 @@ ______________________
 NDA соблюдается, документы не содержат конфиденциальных данных.
 
 **Резюме:**
-https://hh.ru/resume/f87e66a2ff0ff1ff650039ed1f375a4771706f
+[https://hh.ru/](https://hh.ru/resume/f87e66a2ff0ff1ff650039ed1f375a4771706f)
 
 **Контакты:**
 greenhia@mail.ru
