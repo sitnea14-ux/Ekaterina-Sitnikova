@@ -9,7 +9,7 @@ NDA соблюдается, документы не содержат конфи�
 [https://hh.ru/](https://hh.ru/resume/f87e66a2ff0ff1ff650039ed1f375a4771706f)
 
 **Контакты:**<br>
-greenhia@mail.ru<br>
-Telegram: @greenhia
+📧 **Email:** greenhia@mail.ru<br>
+💬 **Telegram:**: [@greenhia](tg://resolve?domain=greenhia)
 
 
